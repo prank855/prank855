@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-https://osu.ppy.sh/community/forums/topics/619322
+https://osu.ppy.sh/community/forums/topics/619322  
 https://steamcommunity.com/sharedfiles/filedetails/2166246924
 
 <!--
