@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+https://osu.ppy.sh/community/forums/topics/619322
+https://steamcommunity.com/sharedfiles/filedetails/2166246924
+
 <!--
 **prank855/prank855** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
